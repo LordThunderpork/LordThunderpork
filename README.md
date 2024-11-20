@@ -2,7 +2,7 @@
 - 👀 I’m interested in visualizing Minecraft data
 - 🌱 I’m currently learning terraforming
 - 💞️ I’m looking to collaborate on Minecraft projects, especially cinematic and environment design
-- 📫 How to reach me: lordthunderporkmc@gmail.com
+- 📫 How to reach me: heythunderpork@gmail.com
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: I play on Whimsicraft
 
